@@ -1,0 +1,2 @@
+# premium-broadaxe-hew-001-broadaxe-hew-timber-square-c
+Struggling to consistently hew a perfect square timber? Your broadaxe work deserves a system that turns raw logs into repeatable results.  The Broadaxe Hew &amp; Timber Square Craft Lab is the only Notion template built specifically for the hewer's workflow. It organizes every step from log selection to final squaring, so you capture your technique, tr
